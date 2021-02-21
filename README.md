@@ -1,1 +1,1 @@
-This is Nova7485's first projec!
+This is Nova7485's first project!
